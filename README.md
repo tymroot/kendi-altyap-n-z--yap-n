@@ -1,0 +1,1 @@
+# kendi-altyap-n-z--yap-n
