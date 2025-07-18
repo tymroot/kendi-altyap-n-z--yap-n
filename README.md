@@ -1,1 +1,1 @@
-# kendi-altyap-n-z--yap-n
+umarım bir gün kendi altyapınızı yaparsınız.
